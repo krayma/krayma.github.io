@@ -4,3 +4,4 @@ Gary Goodspeed ist ein Gefangener der Infinity Garde. Er wurde zu fünf Jahren H
 * Ist erst Gefangener, dann Kapitän der Galaxy One
 * mag Kekse
 * nimmt Mooncake bei sich auf
+> Okay, that's not good. That's not good! Quick, hug me.
